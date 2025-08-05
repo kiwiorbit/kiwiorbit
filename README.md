@@ -24,7 +24,7 @@ I'm a passionate and creative web developer and web designer with a keen eye for
 - Coding tutorials and educational content
 
 ## 📫 How to reach me ...
-- Email: alainnastore92@outlook.com / kiwiorbitdev@outlook.com
+- Email: hash94lens@gmail.com / kiwiorbitdev@outlook.com
 - - instagram: https://www.instagram.com/hash94lens
 
 
